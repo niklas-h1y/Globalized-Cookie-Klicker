@@ -1,0 +1,1 @@
+# Globalized-Cookie-Klicker
